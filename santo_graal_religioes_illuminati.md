@@ -10,14 +10,15 @@ Além das lendas arturianas, o Santo Graal também está associado a uma rica tr
 
 Neste texto, exploraremos a interseção entre o Santo Graal, as religiões, a ciência e os Illuminati, com o objetivo de descobrir onde está a verdade. Analisaremos como essas forças históricas, espirituais e políticas se entrelaçam para formar nossa percepção do mundo e como podemos discernir a verdade em meio a tantas narrativas.
 
-## Capítulo 2: Análise do Texto de Peredur
-O texto de Peredur, também conhecido como "Peredur filho de Efrawg", é uma das três narrativas galesas que compõem o Mabinogion, uma coleção de contos medievais galeses. Peredur é frequentemente comparado a Perceval, uma vez que ambos os textos compartilham temas e motivos semelhantes, incluindo a busca pelo Santo Graal.
+## Capítulo 3: Análise do Texto de Perceval
+O texto de Perceval, também conhecido como "Perceval, ou o Conto do Graal", foi escrito por Chrétien de Troyes no século XII e é uma das primeiras obras literárias a mencionar o Santo Graal. Perceval é um jovem cavaleiro que parte em uma jornada de autodescoberta e busca pelo Graal. A narrativa de Perceval é rica em simbolismo e oferece várias lições espirituais e morais.
 
-No conto de Peredur, o protagonista é um jovem cavaleiro que parte em uma jornada de autodescoberta e aventura. Durante sua jornada, Peredur encontra uma série de personagens enigmáticos e enfrenta diversas provações. Uma das cenas mais icônicas do texto é quando Peredur visita o castelo do Rei Pescador e presencia uma procissão misteriosa que inclui um prato ensanguentado, uma lança gotejante e uma cabeça em uma bandeja. Embora o Graal não seja mencionado explicitamente, muitos estudiosos interpretam esses objetos como símbolos relacionados ao Graal.
+No conto de Perceval, o protagonista é criado em isolamento por sua mãe, que deseja protegê-lo dos perigos do mundo cavaleiresco. No entanto, Perceval eventualmente encontra um grupo de cavaleiros e decide seguir seus passos. Durante sua jornada, Perceval visita o castelo do Rei Pescador, onde presencia uma procissão misteriosa que inclui o Graal. No entanto, Perceval falha em fazer a pergunta correta sobre o Graal, o que resulta em uma série de desventuras e provações.
 
-A narrativa de Peredur é rica em simbolismo e oferece várias pistas para desvendar o mistério do Santo Graal. Por exemplo, a lança gotejante é frequentemente associada à lança que feriu Jesus Cristo durante a crucificação, enquanto o prato ensanguentado pode ser visto como uma referência ao cálice sagrado. Além disso, a cabeça na bandeja pode simbolizar a sabedoria e o conhecimento oculto.
+A narrativa de Perceval destaca a importância da curiosidade e da busca pelo conhecimento. A falha de Perceval em fazer a pergunta correta sobre o Graal é um lembrete de que a busca pela verdade requer questionamento e investigação. Além disso, a jornada de Perceval é uma metáfora para a busca pela iluminação espiritual e pela redenção.
 
-Uma das principais lições espirituais do texto de Peredur é a importância da busca interior e da autodescoberta. Peredur começa sua jornada como um jovem ingênuo e inexperiente, mas ao longo de suas aventuras, ele cresce em sabedoria e compreensão. A busca pelo Graal, portanto, torna-se uma metáfora para a busca pela verdade e pela iluminação espiritual.
+O texto de Perceval também explora temas de redenção e perdão. Perceval comete vários erros ao longo de sua jornada, mas ele eventualmente busca redenção e perdão por suas falhas. Essa mensagem é particularmente relevante para os leitores modernos, que podem encontrar inspiração na jornada de Perceval para buscar perdão e redenção em suas próprias vidas.
 
-O texto de Peredur também destaca a importância da coragem e da perseverança. Peredur enfrenta numerosos desafios e adversidades, mas sua determinação e coragem o ajudam a superar esses obstáculos. Essa mensagem é particularmente relevante para os leitores modernos, que podem encontrar inspiração na jornada de Peredur para enfrentar suas próprias provações e desafios.
+Além disso, a narrativa de Perceval é rica em simbolismo esotérico e místico. O Graal é frequentemente interpretado como um símbolo de iluminação espiritual e de união com o divino. A jornada de Perceval, portanto, torna-se uma metáfora para a busca pela verdade e pela iluminação espiritual.
+
 
